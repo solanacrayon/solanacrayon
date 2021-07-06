@@ -1,2 +1,3 @@
 - 👋 Hi, Welcom to @solanacrayon
-
+- Follow our [Twitter](https://twitter.com/solanacrayon)
+- Visit Our [Website](https://solanacrayon.com/)
